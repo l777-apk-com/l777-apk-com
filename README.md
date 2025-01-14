@@ -1,7 +1,7 @@
-# [L777 - Login Apk L 777 Download Versi Lawas 8.13](https://9ved.short.gy/jpslot)
+# [L777 - Login Apk L 777 Download Versi Lawas 8.13](https://9ved.short.gy/KLIKDISINI)
 
 ## [DOWNLOAD APK L777](https://apk-depot.s3.ap-northeast-1.amazonaws.com/rap.apk)
-## [VERSI L777](https://9ved.short.gy/jpslot)
+## [VERSI L777](https://9ved.short.gy/KLIKDISINI)
 
 L777 APK adalah platform game online yang semakin populer di Indonesia. Dengan berbagai pilihan permainan yang menarik dan fitur yang dirancang khusus untuk memudahkan pengguna, L777 APK telah menjadi pilihan utama bagi banyak gamer. Aplikasi ini tidak hanya menawarkan hiburan, tetapi juga menyediakan kesempatan untuk bersaing dengan teman dan pemain lain di seluruh dunia, dengan jaminan pengalaman yang aman dan seru.
 
